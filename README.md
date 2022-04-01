@@ -1,1 +1,0 @@
-# Kvant_labs
